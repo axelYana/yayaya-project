@@ -1,3 +1,0 @@
-hgpiugqhpiughpig
-vlavla
-fnhedocbùzqsd
